@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **vanphongngo.work@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/10XRpjxikK2cKjpzrZ1YkpGOpCbxqS9Qq/view?usp=sharing](https://drive.google.com/file/d/10XRpjxikK2cKjpzrZ1YkpGOpCbxqS9Qq/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1MYY7PW7lkvnwvTHPU6Mq0_h5n0vYM28A/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
